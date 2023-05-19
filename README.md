@@ -1,5 +1,5 @@
 -🙃 Olá,eu sou @lucio-souza.
 
--📚 atualmente estouaprendendo Javascript e java.
+-📚 atualmente estoua prendendo Javascript e java.
 
 -🍃 Forma de contato:desouzaleitelucioweslley@gmail.com
